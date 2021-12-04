@@ -1,2 +1,0 @@
-# amaliscm.txt
-ketrampilan
